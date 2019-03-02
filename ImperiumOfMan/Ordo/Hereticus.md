@@ -1,1 +1,1 @@
-lol?
+# Burn the Heretic
