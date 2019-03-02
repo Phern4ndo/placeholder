@@ -1,4 +1,6 @@
 # Chaos Undivided
 
 ---
-Followers of chaos undivided venerate chaos itself in it's purest form.
+Followers of Chaos Undivided venerate Chaos itself, seeing the four major Chaos Gods as a single pantheon to be worshipped equally as different emanations of the same universal force. Of all the worshippers of Chaos they follow Chaos in its purest form. They can interpret the meaning of Chaos in a variety of ways, including as a single God, worship the four major Chaos Gods equally, or favour one slightly over the others.
+
+The Chaos Lords and Daemon Princes of Chaos Undivided are at an advantage in their ability to unite any of the Forces of Chaos under their leadership, even if they would normally worship opposing Gods like Khorne and Slaanesh, so the warbands of Chaos Undivided are always the most diverse. The majority of the Traitor Legions worship Chaos Undivided, including the feared Black Legion of Abaddon the Despoiler, the greatest Champion of Chaos Undivided. Champions of the creed are branded with the Chaos Star, the Mark of Chaos Undivided, somewhere upon their bodies. A follower of Chaos Undivided may also honour the lesser daemonic entities of the Warp if they are likely to aid him. 
