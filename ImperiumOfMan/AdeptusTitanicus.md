@@ -1,3 +1,0 @@
-# Adeptus Titanicus
-
----
