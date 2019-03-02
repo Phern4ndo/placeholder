@@ -1,0 +1,4 @@
+# Eldar
+
+---
+The Eldar, or Aeldari as they were known in the Eldar Lexicon before the fall of their lost realm, or the Asuryani (followers of Asuryan) as they refer to themselves, are an ancient humanoid alien race whose vast empire once extended the width and breadth of the known galaxy. The Aeldari Empire was without equal, and they counted themselves masters of the stars. But millennia ago, the Aeldari's overweening pride and their fall into hedonistic practices led to a cataclysm that all but eradicated their kind and led to the birth of the Chaos God Slaanesh. Despite their boundless power, the heart of their civilisation was torn out by this catastrophe of their own making, forcing the surviving Aeldari, now calling themselves "Eldar," to flee upon gigantic, continent-size starships called Craftworlds. Now they cling to survival by a thread, fighting the horrors of the galaxy with ritualised discipline and consummate skill. 
